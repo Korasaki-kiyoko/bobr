@@ -1,1 +1,1 @@
-"Txt for master" 
+«Privet ot samokat»
